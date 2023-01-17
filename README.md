@@ -4,7 +4,7 @@
 
 ## More Details About
 
-Hope you liked this project,I took much effort on this project so kindly give it a star. ! Follow me and stay tuned for more and hire or contact me here https://asadalizia.epizy.com ⁠
+I hope you liked this project, I took much effort into this project so kindly give it a star on Github. ! Follow me and stay tuned for more, and Hire or Contact Me here https://asadalizia.epizy.com ⁠
 
 ## Don't forget to visit my other accounts
 
