@@ -2,10 +2,9 @@
 
 ![Portfolio Website](https://i.ibb.co/WgPMpts/image.png)
 
+## More Details About
 
-### Showcase your dev skills with practical experience and land the coding career of your dreams
-
-Hope you liked the post! Follow me and stay tuned for more educational posts! ⁠
+Hope you liked this project! Follow me and stay tuned for more and hire or contact me here https://asadalizia.epizy.com/! ⁠
 
 Don't forget to visit my other accounts
 Linked In: https://www.linkedin.com/in/asadalizia/
